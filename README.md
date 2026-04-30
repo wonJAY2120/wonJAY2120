@@ -1,16 +1,24 @@
-## Hi there 👋
-
-<!--
-**wonJAY2120/wonJAY2120** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## ʜɪ ᴛʜᴇʀᴇ!✦. ;. 🥟. 
+ᴘʀᴏɴᴏᴍᴜs;sʜᴇ;ʜᴇʀ;ᴛʜᴇʏ.٭ ;.
+ᴄᴀʟʟ ᴍᴇ. ᴊᴀʏ;ᴋʀx;ʟᴜsᴛʀ. ;.
+ɪ'ᴍ. 🇻🇳;🇺🇸;🇬🇧 ;ғʀᴇᴇ.🇵🇸;🇮🇱ෆ. 
+ɪ ʟɪᴋᴇ ғᴏᴏᴅ;. ;🍝;🍞;🧈 ;. 
+ɪ ʟɪᴋᴇ ᴀɴɪᴍᴀʟs.! ;🪼;🐍 ;. 
+ɪ'ᴍ. ᴇɴᴛᴘ;so5ෆ. ✦ ;.
+ɪ ʟɪᴋᴇ ʜᴏʙʙɪᴇs. ;🥋;⚾;🎮;🎲;🎨;. .ᴄᴏᴜɴᴛʀɪᴇs. ɪ. ʟɪᴋᴇ. ;🇯🇵;🇵🇭;🇸🇬;🇻🇳.;.
+ᴄᴏᴅᴇ. ɴᴀᴍᴇ; ᴋᴛx.09*. ,;🎱.;
+ᴘʟᴀᴄᴇ. ɪ ʟɪᴠᴇ; 🇻🇳.! °;.
+💈. 🏳️‍⚧️!;ʟᴇs;ᴘᴀɴ;ᴀʀᴏ;.!!;.
+ʕ •ₒ• ʔ.?. ;✦ . 
+.
+　⠀🌸🌷🌸🌷🌸🌷🌸 ✦ . 
+　　　 🌸🌷🌸🌷🌸 . 
+　　　Λ🌷🌸🌷🌸🌷 . 
+　　 ( ˘ ᵕ ˘🌷🌸🌷 . 
+　　　ヽ つ＼　 ／
+　　　 UU　/ 🎀 \
+@Fac3mojiKeyboard . ;.
+ɪ ʟɪᴋᴇ ɢɪʀʟs.! ;. 
+{\__/}   {\__/}
+( • . •)  ( • - •)   < I LOVE ʏᴏᴜ) 
+/ >  🩷    🩷  <  \ . 
